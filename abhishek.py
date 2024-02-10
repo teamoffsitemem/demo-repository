@@ -1,2 +1,2 @@
-tu chuttiya hai
+gandu adarsh
 
